@@ -1,1 +1,1 @@
-archived
+jihadrashid.github.io
